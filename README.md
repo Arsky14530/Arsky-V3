@@ -33,6 +33,19 @@
 -----------------------------------------------------------------------------------------
 # DONATE TO ME 
 # Fomf18 On Cashapp Thank you for donos
+--------------------------------------------------------------------------------------------------------
+# REMEMBER DO NOT USE THIS FOR HARMING PEOPLE JUST WANT TO SHOW YOU WHAT HACKERS/LOGGERS CAN DO TO YOU IF U ARE DUMD ENOUGH TO DOWNLOAD SHIT 
+
+![image](https://github.com/Arsky14530/Arsky-V3/assets/92093860/fb5745cb-6c79-4eef-ba09-3620d88e6a98)
+
+![image](https://github.com/Arsky14530/Arsky-V3/assets/92093860/49e50d92-dbe8-4bba-a5d8-0f1b2e13bef3)
+
+![image](https://github.com/Arsky14530/Arsky-V3/assets/92093860/6af50635-9b75-4ed0-b254-9c6012b93555)
+
+![image](https://github.com/Arsky14530/Arsky-V3/assets/92093860/e0e394fa-60f9-459a-9bd0-fe07a369bc99)
+
+
+
 
 
 
